@@ -3,4 +3,4 @@ The **Thuận An - Đồng Xoài - Phước Long Expressway** (Vietnamese: **Đ�
 
 This expressway once completed will shorten the travel time from DT.417, and have 32 bridges, 6 overpasses, and 11 interchanges (see below "Route Details" for full details).
 ## Route Description
-The Thuận An - Đồng Xoài - Phước Long Expressway usually begins at the intersection with Nguyễn Hữu Cảnh in Thuận An city, overpassing National Route 13. Heading Northeast, the CT.20 overpasses Provincial Road 743B at the Dĩ An Viaduct, then Nguyễn An Ninh at
+The Thuận An - Đồng Xoài - Phước Long Expressway usually begins at the intersection with Nguyễn Hữu Cảnh in Thuận An city, overpassing National Route 13. Heading Northeast, the CT.20 overpasses Provincial Road 743B at the Dĩ An Viaduct, then Nguyễn An Ninh at the Bình An Viaduct.
